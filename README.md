@@ -9,7 +9,7 @@
 </div>
 <div align="center">
 
- 𝓮𝓭𝓲𝓽𝓸𝓻 𝓲𝓼 @𝓭𝓪𝔀𝓷𝓼𝓾𝓶𝓶𝓮𝓻
+𝓲 𝓪𝓶 𝓽𝓱𝓮 𝓮𝓭𝓲𝓽𝓸𝓻 𝓪𝓷𝓭 𝓽𝓱𝓮 𝓾𝓼𝓮𝓻 𝓲𝓼 @𝓛𝓾𝓷𝓪𝓻𝓪𝓟𝓮𝓽𝓪𝓵
  </div>
 <img src="https://i.pinimg.com/originals/3e/06/5a/3e065a717c44fa83b3c7dc64ec2e075f.gif" width="420">
 </div>
